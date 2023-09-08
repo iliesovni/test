@@ -23,3 +23,6 @@
 ![gif of someone doing a kickflip then flying.](https://media.tenor.com/vhKS5xfM8ikAAAAC/toilet-flying.gif)
 
 to know more : [Quandale Dingle](https://www.youtube.com/watch?v=I8Rg1BjpzWc).
+
+> [!WARNING]
+> An arabic person might be near you. He might try to steal something from you. BE CAREFUL!
